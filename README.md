@@ -1,3 +1,3 @@
 # digitalmodel
 my first respo
-i love :coffe:, :ALX:, :coding:,
+i love :coffe:, :pizza:, :dress:,
