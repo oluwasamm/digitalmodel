@@ -1,3 +1,3 @@
 # digitalmodel
 my first respo
-i love :coffe:, :pizza:, :dress:,
+i love :chess_pawn:, :pizza:, :dress:,
